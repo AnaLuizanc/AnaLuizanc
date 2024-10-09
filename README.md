@@ -1,4 +1,4 @@
-# About Me
+# About Me :blush:
 
 Hey, there! I'm a Computer Science's student. Nice to meet you here.
 
